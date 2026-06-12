@@ -1,2 +1,0 @@
-# Manpasand Fottwear
-
